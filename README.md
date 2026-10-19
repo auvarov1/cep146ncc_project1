@@ -6,7 +6,7 @@ Andrei Uvarov - 137109252
 
 Milena Curbani Agnes - 
 
-Tymur Harbar - 
+Tymur Harbar - 135313252
 
 Sanvi Arora - 
 
@@ -31,7 +31,8 @@ Milena Curbani Agnes:
 
 Tymur Harbar:
 
--
+- made a research of one topic out of two.
+- put lot of effort at the discussion and distributing a work.
 
 Sanvi Arora:
 
