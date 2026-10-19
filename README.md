@@ -31,8 +31,8 @@ Milena Curbani Agnes:
 
 Tymur Harbar:
 
-- made a research of one topic out of two.
-- put lot of effort at the discussion and distributing a work.
+- subtopic "Employment and economic inequality".
+- put a lot of effort at the discussion and distributing a work.
 
 Sanvi Arora:
 
