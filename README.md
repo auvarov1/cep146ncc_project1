@@ -38,4 +38,8 @@ Tymur Harbar:
 
 Sanvi Arora:
 
--
+- **Role: Video Presenter**
+
+- Recorded the video presentation explaining AI misconceptions, automation, and accountability.
+- Presented key information clearly and professionally for the group project.
+- Contributed to the introduction and conclusion of the presentation.
