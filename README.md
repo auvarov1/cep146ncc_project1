@@ -16,7 +16,7 @@ Although many people fear that AI will cause mass unemployment, current evidence
 
 ## Youtube link
 
-https://
+https://youtu.be/KJZkUNd1UTE
 
 ## Participation
 
@@ -27,7 +27,9 @@ Andrei Uvarov:
 
 Milena Curbani Agnes: 
 
-- prepared the final version of the script.
+- Prepared the final version of the script.
+- Edited the video.
+- Helped with brainstorming of topics and discussions.
 
 Tymur Harbar:
 
